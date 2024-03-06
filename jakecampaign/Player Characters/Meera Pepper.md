@@ -16,4 +16,5 @@ Colors gained;
 Canvas; y/n
 sketching tools; y/n
 
-Party Members with [[Kal - Kalyre Fleistroro]] , [[Themis]]
+Party Members with [[Kal - Kalyre Fleistroro]] , [[Themis]] 
+test
