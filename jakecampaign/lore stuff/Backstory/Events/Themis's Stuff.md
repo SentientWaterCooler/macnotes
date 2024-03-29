@@ -1,2 +1,0 @@
-
-Kasuth gave him a quest to go find a priest in Phandalin (Iorno Albreich aka Glass Staff). Was told that he would get his love back if he did so. Reported burning on wrist. ([[Themis and his weird quests]])
