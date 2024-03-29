@@ -1,0 +1,1 @@
+One of three emissaries from The Lords Alliance. Arrived with [[Joseph Hemlock]], and [[Victor Wilhelm Melstrom]] 
