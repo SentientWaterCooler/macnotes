@@ -39,3 +39,22 @@ It all went wrong. They tried to tell you to turn around and it will Always Haun
 Silhouettes of the crew in the rain
 
 **
+
+Death Save Memories;
+
+**
+
+Successful saves:
+
+  
+
+[[Tommy Kalsten]] and meera in the crows nest
+
+Tommy asks why meera is on the run, asks why he’d leave such a cushy life. Meera says he needed to escape, felt imprisoned, he never wanted to be stuck again. Tommy says “yeah i guess that makes sense. Seeing that you killed us all.” face melts into black ink, voice says “ITS YOUR FAULT.” (MN4)
+
+  
+  
+
+At a tavern; taken down a small merchant ship; pretty good haul! 200-300k split between the crew, everything pretty baller. Sitting with [[Cassandra Lynn-Davies]] she said shes proud of me! Meera starts SOBBING. First time he ever heard such a thing. Crying into her shoulder when she says “maybe this time you WONT MAKE ANOTHER MISTAKE.” falls into water, treading better than before!
+
+**
