@@ -1,0 +1,1 @@
+Map achieved! In possession by [[Meera Pepper]], after [[Themis]]'s *Hat of Disguise* was given to [[Lady Agatha]].
