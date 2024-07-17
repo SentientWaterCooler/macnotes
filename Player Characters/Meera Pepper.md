@@ -3,7 +3,7 @@ Nicholas Ahnicaster-Pepper Solion
 Half-Elf
 28
 [Monk](http://dnd5e.wikidot.com/monk)  lvl 2
-[Wild Magic Sorcerer](http://dnd5e.wikidot.com/sorcerer:wild-magic)  lvl 1
+[Death Domain Cleric](http://dnd5e.wikidot.com/cleric:death) lvl 1
 [[Adastra Solion]]
 [[Steven Ahnicaster]]
 [[The Beast]]
