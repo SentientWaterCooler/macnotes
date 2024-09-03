@@ -1,4 +1,4 @@
-On the night [[Kal - Kalyre Fleistroro]] 's house burned down, he had dreamed of disaster. His mom had tried to save him, and nearly did, yet Kal had left his treasured [[Music Box]] back in the house. Upon going to get it, a burning beam crushed his mother and killed her, and also crushed his legs. Kal does not remember how he survived.
+On the night [[Kal - Kalyre Fleistro]] 's house burned down, he had dreamed of disaster. His mom had tried to save him, and nearly did, yet Kal had left his treasured [[Music Box]] back in the house. Upon going to get it, a burning beam crushed his mother and killed her, and also crushed his legs. Kal does not remember how he survived.
 
 ***From Ethan;*** 
 
@@ -6,5 +6,5 @@ Kal was maybe 9 in human years, Kal’s house burned down in the dead of night. 
 
 ***Post Death;** ****
 
-Saved by [[The Creator]]. Told Kal that he was their champion, and that he was to protect their children that lived on the mortal plane. Blessed Kal, made him Fae Touched, doing weird gentle parenting thing. Said Kal was not grateful enough of their gifts and was VERY mad
+Saved by [[The Creator - Demeter]]. Told Kal that he was their champion, and that he was to protect their children that lived on the mortal plane. Blessed Kal, made him Fae Touched, doing weird gentle parenting thing. Said Kal was not grateful enough of their gifts and was VERY mad
 
